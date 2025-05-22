@@ -19,4 +19,4 @@ Acknowledgements 🎉
 
 Contact 📧 For any questions or feedback, feel free to contact:
 
-Email: your.logambilkanarayansamy@gmail.com
+Email: logambikanarayanasamy@gmail.com
